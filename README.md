@@ -1,4 +1,3 @@
-AzaleaBarrera1910@icloud.com
 SelenaCochran1910HK@icloud.com
 CadenceMorris1910HK@icloud.com
 PrestonDennis1710HK@icloud.com
