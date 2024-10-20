@@ -1,1 +1,12 @@
-# IDHK
+AzaleaBarrera1910@icloud.com
+SelenaCochran1910HK@icloud.com
+CadenceMorris1910HK@icloud.com
+PrestonDennis1710HK@icloud.com
+PeterMiranda1710HK@icloud.com
+MarcosDaniels1710HK@icloud.com
+BraydenParsons1710HK@icloud.com
+BrendanLuna1710HK@icloud.com
+NehemiahHuber1710HK@icloud.com
+TravisLambert1710HK@icloud.com
+MaddenRosas1710HK@icloud.com
+OrlandoAdkins1710HK@icloud.com
